@@ -1,1 +1,1 @@
-# oop_lab1_task1_last
+# Kachenya Dima
